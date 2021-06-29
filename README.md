@@ -6,4 +6,5 @@ Um, I'm a full time student
 
 ## My Hobbies and Likes
 One of my favourite things to do as to game! I also love bowling and cycling and jogging! :sweat_smile:
+
 ! [headshot] (noob 1.png)
