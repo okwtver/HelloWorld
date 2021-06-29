@@ -1,3 +1,4 @@
+![Alt Text](url)
 # A little insight into thenoobdev101
 Hi Everyone! My username is thenoobdev101 and I am aspiring to be a dev! This README will give you a bit of information about me!
 
