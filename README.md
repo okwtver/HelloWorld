@@ -8,3 +8,6 @@ Um, I'm a full time student
 
 ## My Hobbies and Likes
 One of my favourite things to do as to game! I also love bowling and cycling and jogging! :sweat_smile:
+
+## My Favorite Books
+I enjoy reading horror books and the one book that I enjoy the most are the books by Ransom Riggs!
